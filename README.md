@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @merlinny-lgtm
+- 👀 I’m interested in batman and books
+- 😄 Pronouns: she/he
+- Ah! i love chocollatte <3
